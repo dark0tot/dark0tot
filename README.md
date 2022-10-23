@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **dark0t@icloud.com**
 
-- ⚡ Fun fact **If you need a guy to test something 10 times I'll most likely test it 101 times. I'm funny guy, right? :D**
+- ⚡ Fun fact **If you need a guy to test something 10 times I'll most likely test it 101 times. :D**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
