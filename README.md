@@ -5,7 +5,7 @@
 
 - 🔭 I’m currently working on **IT Bootcamp Final Project**
 
-- 💬 Ask me about **QA skills :D**
+- 💬 Ask me about **QA skills and F1 :D**
 
 - 📫 How to reach me **dark0t@icloud.com**
 
